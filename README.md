@@ -19,4 +19,4 @@ Thaiga,
 Leléo, 
 Crusher Fooxi
 Kroonos e Brabox, 
-solta a voz...
+solta a voz...ertghredthr
